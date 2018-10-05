@@ -1,4 +1,4 @@
 # Who is kal1s?
 
 
-# ... read this testimony and find out for your self ...
+# Read this Testimony and find more information about me.
